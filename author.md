@@ -1,2 +1,2 @@
-Justin Bieber
-Justin Bieber is an ass
+Shakespeare
+To be or not to be
