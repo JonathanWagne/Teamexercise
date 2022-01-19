@@ -1,2 +1,3 @@
-Justin Bieber
-Justin Bieber is an ass
+# JUSTIN BIEBER
+
+> Justin Bieber is an ass
